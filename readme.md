@@ -1,2 +1,1 @@
-# robot-inject
-cheat slot
+<p>silakan anda salin html yang sudah berada di repositori dan silahkan anda sesuai kan template tersebut untuk anda gunakan, <a target="_blank" rel="noopener noreferrer" href="https://canduan188bersinar.com/">canduan188</a> adalah tempat yang sangat tepat untuk anda coba&nbsp;</p>
