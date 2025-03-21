@@ -1,0 +1,2 @@
+# robot-inject
+cheat slot
